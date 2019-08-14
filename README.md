@@ -6,5 +6,5 @@ Details will be announced in my home page: http://www.tsibale.com
 
 Contact person:
 Shoju CHIBA
-Reitaku University
-schiba@reitaku-u.ac.jp
+(Reitaku University,
+e-mail: schiba@reitaku-u.ac.jp)
